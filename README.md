@@ -1,1 +1,0 @@
-# kophyoemin.json
